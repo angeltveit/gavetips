@@ -16,5 +16,5 @@ En liste over ting jeg ønsker meg
 | Nye høytalere til keyboardet | Eksempelvis, men ikke nødvendigvis, i lenken. | https://www.komplett.no/product/603224/gaming/hoeyttalere/logitech-z623-pc-hoeyttalere# |
 | Hugo BOSS Bottled | Parfyme/Deo | |
 | Hugo BOSS Bottled NIGHT | Parfyme/Deo | |
-
+| Stavmikser | | |
 
