@@ -17,4 +17,5 @@ En liste over ting jeg ønsker meg
 | Hugo BOSS Bottled | Parfyme/Deo | |
 | Hugo BOSS Bottled NIGHT | Parfyme/Deo | |
 | Stavmikser | | |
+| Mic & stativ | | https://www.kjell.com/no/produkter/data-og-nettverk/datatilbehor/mikrofoner/nikabe-m-2-mikrofonkit-p24049 |
 
